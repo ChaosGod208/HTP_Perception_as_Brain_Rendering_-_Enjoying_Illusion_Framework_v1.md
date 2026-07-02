@@ -1,1 +1,2 @@
-# HTP_Perception_as_Brain_Rendering_-_Enjoying_Illusion_Framework_v1.md
+Framework explaining that color, beauty, and visual experience are brain-rendered patterns from mechanical particle collisions, not objective "real" qualities. Rejects nihilism and affirms the value of enjoying high-fidelity rendered reality (hot girls, smiles, bodies, etc.) as an evolutionary masterpiece.
+Public domain.
